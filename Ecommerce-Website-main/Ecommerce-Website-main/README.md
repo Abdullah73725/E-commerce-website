@@ -24,8 +24,6 @@ Email me Now **abdullah.ansari.abu@gmail.com** to get this Full Project Code, PP
 
 ### Mail : abdullah.ansari.abu@gmail.com  
 
-### Website : https://www.finalproject.in/
-
 Mail/Message me for Projects Help 🙏🏻
 
 ### Liked Project?
